@@ -1,2 +1,0 @@
-# cobacoba.github.io
-#cek
